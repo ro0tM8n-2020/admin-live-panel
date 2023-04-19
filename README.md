@@ -19,6 +19,9 @@ You will get separated files ( scampage + SQL FILE ) and Unique API KEY
 ➢Full functional
 ➢Anti Bots Included
 
- 👉 CONTACT ME NOW : https://t.me/ro0tM8n
+DEMO VIDEO : https://www.veed.io/view/28d95f1a-22ed-4c3a-b582-7e09db68b227?sharingWidget=true&panel=share
+
+
+👉 CONTACT ME NOW : https://t.me/ro0tM8n
 
 📌 Official Channel : https://t.me/ro0tM8nchannel
